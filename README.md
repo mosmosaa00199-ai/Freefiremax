@@ -1,1 +1,1 @@
-# Freefire
+# Freefiremax
